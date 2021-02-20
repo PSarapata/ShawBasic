@@ -1,0 +1,1 @@
+# Memorizing terms - revision
